@@ -1,0 +1,1 @@
+Zadania z Lab3 nie były konieczne do wykonania
